@@ -14,3 +14,13 @@
 - [Brightspace](learn.georgebrown.ca)
 - [GitHub Pages](https://pages.github.com/)
 - [GBLearn](https://my.gblearn.com/login)
+
+# **EXPERIMENTS**
+- 😭
+- 🫠
+- 🤣
+- 🤷🏾‍♀️
+- 😔
+- ❤️
+- 🤍
+- 😆
